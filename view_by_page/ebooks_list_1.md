@@ -30,7 +30,7 @@
     </tr>
     <tr>
         <td>Download:</td>
-        <td><a title="Download A Peek at Computer Electronics pdf" href="http://www.eazydoc.com/rD">http://www.eazydoc.com/rD</a></td>
+        <td><a title="Download A Peek at Computer Electronics pdf" href="http://www.eazydoc.com/rD">https://www.gulf-up.com/r9xqvz0zmpoq</a></td>
     </tr>
 </table>
 
