@@ -30,7 +30,7 @@
     </tr>
     <tr>
         <td>Download:</td>
-        <td><a title="Download A Peek at Computer Electronics pdf" href="http://www.eazydoc.com/rD">https://www.gulf-up.com/r9xqvz0zmpoq</a></td>
+        <td><a title="Download A Peek at Computer Electronics pdf" href="https://www.gulf-up.com/r9xqvz0zmpoq">https://www.gulf-up.com/r9xqvz0zmpoq</a></td>
     </tr>
 </table>
 
@@ -66,7 +66,9 @@
     </tr>
     <tr>
         <td>Download:</td>
-        <td><a title="Download Advanced Rails Recipes pdf" href="http://www.eazydoc.com/rE">http://www.eazydoc.com/rE</a></td>
+        <td><a title="Download Advanced Rails Recipes pdf" href="https://www.gulf-up.com/wwhen8bdmhch
+">https://www.gulf-up.com/wwhen8bdmhch
+</a></td>
     </tr>
 </table>
 
